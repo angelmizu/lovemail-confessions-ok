@@ -18,6 +18,8 @@
 
 [☾ 𝐘𝐨𝐤𝐮 . (𝐧1 𝐝𝐞𝐟𝐨𝐤𝐨 𝐟𝐚𝐧)](https://github.com/yokumallow)
 
+[☾ 𝐒𝐚𝐬 . (𝐫𝐨𝐬𝐚'𝐬 𝐧1 𝐟𝐚𝐧)](https://github.com/DoctorFunkbeat)
+
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 (this is still semi-unfinished(??? idk actually) just dont rush me ok......)
 
@@ -33,6 +35,9 @@
 
 𝐊𝐚𝐭𝐬𝐮 - HI KATSU!!!! youre amazing,, i still remember the exact day we met. it was in a hangout on november 22 (my birthday!!) and we started talking becuz i recognized one of your cosplays. its like you became friends with me as a birthday gift, and i will forever be grateful for that gift <3 youre a very caring and nice friend, ilysm <3 ִ ࣪𖤐
 
-𝐘𝐨𝐤𝐮 - hi yoku!!!!! youre very funny and you have great humor,, youre an awesome friend to be around and despite the fact that you don't get online much, i still love u <3 /p also THANKS FOR SENDING ME VFLOWER VIDOES ILY YAYYYYY ♬⋆.˚
+𝐘𝐨𝐤𝐮 - hi yoku!!!!! youre very funny and you have great humor,, youre an awesome friend to be around and despite the fact that you don't get online much, i still love u <3 /p also THANKS FOR SENDING ME VFLOWER VIDEOS ILY YAYYYYY ♬⋆.˚
+
+𝐒𝐚𝐬 - SASSS!!!!! HI!!!!! im so glad we started to talk more recently!! ^_^ youre such a cool friend, and i was so happy to welcome you into my friend group, i knew that was a great decision. youre such a funny person and i appreciate you alot. ilyyy!!!! ˙⋆✮
+
 
 if you arent on this list,, just know that this is unfinished and youll get added soon dw :3 ☆
