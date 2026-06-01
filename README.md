@@ -21,7 +21,6 @@
 [☾ 𝐒𝐚𝐬 . (𝐫𝐨𝐬𝐚'𝐬 𝐧1 𝐟𝐚𝐧)](https://github.com/DoctorFunkbeat)
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
-(this is still semi-unfinished(??? idk actually) just dont rush me ok......)
 
 𝐀𝐢𝐝𝐞𝐧 - hi aiden!!!!!! youre so swag ok,,, ok uhm before i get to the important stuff i justwanna say im SO sorry for being like. inactive on discord and stuff😭😭😭 itjust gets so hard to talk becuz i talk to so many people ok😿 anyways!! i just wanted to say that youre one of my closest friends and ive known you for a pretty long time,, like. we met when i first started playing pony town for the first time actually yay,, you never fail to make me laugh(youre genuinely funny ok). im so thankful that i became ur friend becuz ure so cool and youre very fun to talk to and youre so awesomepilled ok!!!!!🎉🎉🎉🎉🎉🎉🎉yay🎉🎉🎉🎉🎉 .☘︎ ݁˖
 
@@ -38,6 +37,3 @@
 𝐘𝐨𝐤𝐮 - hi yoku!!!!! youre very funny and you have great humor,, youre an awesome friend to be around and despite the fact that you don't get online much, i still love u <3 /p also THANKS FOR SENDING ME VFLOWER VIDEOS ILY YAYYYYY ♬⋆.˚
 
 𝐒𝐚𝐬 - SASSS!!!!! HI!!!!! im so glad we started to talk more recently!! ^_^ youre such a cool friend, and i was so happy to welcome you into my friend group, i knew that was a great decision. youre such a funny person and i appreciate you alot. ilyyy!!!! ˙⋆✮
-
-
-if you arent on this list,, just know that this is unfinished and youll get added soon dw :3 ☆
