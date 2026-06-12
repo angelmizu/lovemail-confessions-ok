@@ -2,6 +2,8 @@
 
 ![1000025520](https://github.com/user-attachments/assets/642c4f99-e8d7-4e70-9258-9e85cce09dfc)
 
+i need to remake this for like the 3rd time but im a lazy shit ok
+
 𝐜𝐥𝐨𝐬𝐞𝐬𝐭 𝐟𝐫𝐢𝐞𝐧𝐝𝐬/𝐟𝐚𝐦𝐢𝐥𝐲 𝐭𝐡𝐚𝐭 𝐢 𝐚𝐝𝐨𝐫𝐞 ^_^
 
 [☾ 𝐀𝐢𝐝𝐞𝐧 . (𝐦𝐲 𝐛𝐫𝐨𝐭𝐡𝐞𝐫 !!)](https://github.com/KARSGOBOOM)
